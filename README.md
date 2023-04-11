@@ -9,6 +9,8 @@ Google Photos All-hands, Summer 2018
 
 ![AAI](https://user-images.githubusercontent.com/19508013/231303578-d3bfbc48-01af-4446-8f77-0e00edeee051.png)
 
+<img width="420" alt="180634493-a73d3846-16d6-40a4-a3de-b0b42e61ba54" src="https://user-images.githubusercontent.com/19508013/231304560-e377a70d-d1e0-477c-bf8c-aabf1b6c9876.png">
+
 Accenture CIO Data Science Guild, 2022 & 2023
 
 ![avanade](https://user-images.githubusercontent.com/19508013/231303683-3fe673ad-da86-45d4-a4df-a64f9b251e32.png)
