@@ -1,9 +1,9 @@
 # Big Tech Public Speaking ❤️💻
 ![google](https://user-images.githubusercontent.com/19508013/231303535-926f9ad2-4ca0-40d9-92d1-b43f27510533.png)
 
-∙ Google Photos All-hands, 2018
+∙ 2018 Google Photos All-hands
 
-∙ Google Cloud Platform Efficiency All-hands, 2022
+∙ 2022 Google Cloud Platform Efficiency All-hands
 
 ![accenture](https://user-images.githubusercontent.com/19508013/231303572-253c4714-675c-4de9-9d99-48d5df1342e5.jpeg)
 
@@ -15,10 +15,10 @@
 
 <img width="420" alt="180634493-a73d3846-16d6-40a4-a3de-b0b42e61ba54" src="https://user-images.githubusercontent.com/19508013/231304560-e377a70d-d1e0-477c-bf8c-aabf1b6c9876.png">
 
-∙ Accenture CIO Data Science Guild, 2021, 2022, & 2023
+∙ 2021, 2022, & 2023 Accenture CIO Data Science Guild
 
-∙ Accenture University of California, Irvine  Engagements, 2021, 2022, & 2023 
+∙ 2021, 2022, & 2023 Accenture University of California, Irvine  Engagements 
 
 ![avanade](https://user-images.githubusercontent.com/19508013/231303683-3fe673ad-da86-45d4-a4df-a64f9b251e32.png)
 
-∙ Avanade Advanced Analytics All-hands, 2021, 2022, & 2023
+∙ 2021, 2022, & 2023 Avanade Advanced Analytics All-hands
