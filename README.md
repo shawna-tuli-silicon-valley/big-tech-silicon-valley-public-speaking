@@ -17,6 +17,8 @@
 
 ![221004636-a9f4ab0d-27b9-48de-ac02-62c20d3d559a](https://user-images.githubusercontent.com/19508013/231307203-55163f79-a704-40b4-850b-e6a1816f0087.jpg)
 
+![UCI ML Graduate Class 11 16](https://github.com/shawna-tuli-silicon-valley/big-tech-silicon-valley-public-speaking/assets/19508013/65335390-25d4-4dca-bb7e-73590db6d8ee)
+
 <img width="420" alt="180634493-a73d3846-16d6-40a4-a3de-b0b42e61ba54" src="https://user-images.githubusercontent.com/19508013/231304560-e377a70d-d1e0-477c-bf8c-aabf1b6c9876.png">
 
 ∙ 2021, 2022, & 2023 Accenture CIO Data Science Guild
