@@ -3,7 +3,13 @@
 
 ∙ 2018 Google Photos All-hands
 
+![IMG_4138](https://github.com/shawna-tuli-silicon-valley/big-tech-silicon-valley-public-speaking/assets/19508013/994b26dd-b5e1-471d-bae8-766427b81664)
+
 ∙ 2022 Google Cloud Platform Efficiency All-hands
+
+![IMG_5316](https://github.com/shawna-tuli-silicon-valley/big-tech-silicon-valley-public-speaking/assets/19508013/d5c0b21a-7862-457c-ab13-0a5d43848e0a)
+
+![IMG_5316](https://github.com/shawna-tuli-silicon-valley/big-tech-silicon-valley-public-speaking/assets/19508013/4634965e-3bef-4c2a-8861-29b5a2ce2003)
 
 ![accenture](https://user-images.githubusercontent.com/19508013/231303572-253c4714-675c-4de9-9d99-48d5df1342e5.jpeg)
 
