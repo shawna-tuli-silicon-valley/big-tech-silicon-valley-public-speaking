@@ -9,8 +9,6 @@
 
 ![IMG_5316](https://github.com/shawna-tuli-silicon-valley/big-tech-silicon-valley-public-speaking/assets/19508013/d5c0b21a-7862-457c-ab13-0a5d43848e0a)
 
-![IMG_5316](https://github.com/shawna-tuli-silicon-valley/big-tech-silicon-valley-public-speaking/assets/19508013/4634965e-3bef-4c2a-8861-29b5a2ce2003)
-
 ![accenture](https://user-images.githubusercontent.com/19508013/231303572-253c4714-675c-4de9-9d99-48d5df1342e5.jpeg)
 
 ![AAI](https://user-images.githubusercontent.com/19508013/231303578-d3bfbc48-01af-4446-8f77-0e00edeee051.png)
