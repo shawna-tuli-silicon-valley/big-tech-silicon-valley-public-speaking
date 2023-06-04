@@ -10,9 +10,9 @@
 
 ∙ 2022 Google Cloud Platform Efficiency All-hands
 
-![accenture](https://user-images.githubusercontent.com/19508013/231303572-253c4714-675c-4de9-9d99-48d5df1342e5.jpeg)
+![228092834-b737cf27-aef2-4c06-af1f-8641492e38fa](https://github.com/shawna-tuli-silicon-valley/big-tech-silicon-valley-public-speaking/assets/19508013/b02c054d-2f05-4b78-848b-3da80100ccdc)
 
-![AAI](https://user-images.githubusercontent.com/19508013/231303578-d3bfbc48-01af-4446-8f77-0e00edeee051.png)
+![228092855-ec336f9f-3fb3-4f63-a568-abd24fe7f74a](https://github.com/shawna-tuli-silicon-valley/big-tech-silicon-valley-public-speaking/assets/19508013/d8e27e47-d3b0-4197-bedc-c83c5a4318da)
 
 <img width="694" alt="221004450-c544c2ba-51ce-470a-992b-3c92e18ce49b" src="https://user-images.githubusercontent.com/19508013/231307217-7732ec71-0889-4735-a96e-c99a1cdc2006.png">
 
