@@ -1,4 +1,4 @@
-![download](https://github.com/shawna-tuli-silicon-valley/big-tech-silicon-valley-public-speaking/assets/19508013/0e44b3dd-48a2-4185-a8c8-17f8faae3edc)
+![Big_Tech_companies](https://github.com/shawna-tuli-silicon-valley/big-tech-silicon-valley-public-speaking/assets/19508013/54bb1493-88eb-4154-953f-c8f4a49309b9)
 
 ![google](https://user-images.githubusercontent.com/19508013/231303535-926f9ad2-4ca0-40d9-92d1-b43f27510533.png)
 
