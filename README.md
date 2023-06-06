@@ -28,4 +28,8 @@
 
 ![avanade](https://user-images.githubusercontent.com/19508013/231303683-3fe673ad-da86-45d4-a4df-a64f9b251e32.png)
 
+![215619841-76b97b50-2ad3-4736-9a28-07d9fc1fadc3](https://github.com/shawna-tuli-silicon-valley/big-tech-silicon-valley-public-speaking/assets/19508013/5ff519dd-530a-41b5-8baf-d9d4a946f685)
+
+![215619855-a113fa12-24fb-421d-926a-d7636aa3c874](https://github.com/shawna-tuli-silicon-valley/big-tech-silicon-valley-public-speaking/assets/19508013/a8833397-f4ba-410a-bf20-bffc71f4c2c8)
+
 ∙ 2021, 2022, & 2023 Avanade Advanced Analytics All-hands
