@@ -32,4 +32,6 @@
 
 ![215619855-a113fa12-24fb-421d-926a-d7636aa3c874](https://github.com/shawna-tuli-silicon-valley/big-tech-silicon-valley-public-speaking/assets/19508013/a8833397-f4ba-410a-bf20-bffc71f4c2c8)
 
+![image](https://github.com/shawna-tuli-silicon-valley/big-tech-silicon-valley-public-speaking/assets/19508013/f9a7033c-c4fb-4a8a-9306-58b20b2e854a)
+
 ∙ 2021, 2022, & 2023 Avanade Advanced Analytics All-hands
