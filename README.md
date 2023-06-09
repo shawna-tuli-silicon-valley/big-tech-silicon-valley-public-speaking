@@ -8,7 +8,7 @@
 
 ∙ 2018 Google Photos All-hands
 
-∙ 2022 Google Cloud Platform Efficiency All-hands
+∙ 2022 Google Cloud Efficiency All-hands
 
 ![228092834-b737cf27-aef2-4c06-af1f-8641492e38fa](https://github.com/shawna-tuli-silicon-valley/big-tech-silicon-valley-public-speaking/assets/19508013/b02c054d-2f05-4b78-848b-3da80100ccdc)
 
