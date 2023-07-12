@@ -6,9 +6,9 @@
 
 ![IMG_5316](https://github.com/shawna-tuli-silicon-valley/big-tech-silicon-valley-public-speaking/assets/19508013/d5c0b21a-7862-457c-ab13-0a5d43848e0a)
 
-∙ 2018 Google Photos All-hands
-
 ∙ 2022 Google Cloud Efficiency All-hands
+
+∙ 2018 Google Photos All-hands
 
 ![228092834-b737cf27-aef2-4c06-af1f-8641492e38fa](https://github.com/shawna-tuli-silicon-valley/big-tech-silicon-valley-public-speaking/assets/19508013/b02c054d-2f05-4b78-848b-3da80100ccdc)
 
